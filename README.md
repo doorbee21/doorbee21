@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @doorbee21
 - 👀 I’m interested in JAVA C++ PYTHON
-- 🌱 I’m currently learningJ AVA C++ PYTHON
+- 🌱 I’m currently learning JAVA C++ PYTHON
 - 💞️ I’m looking to collaborate on all world programer!
 - 📫 How to reach me message me plz!
 - 😄 Pronouns: -
